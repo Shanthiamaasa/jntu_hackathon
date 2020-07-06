@@ -1,1 +1,0 @@
-# Shanthiamaasa-jntu_hackathon
